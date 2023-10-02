@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @w3kasper
-- 👀 Building on Solana.
+- 👀 ALL DESIGN IS REDESIGN
 - 📫 @w3kasper TWITTER
 
