@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @w3kasper
+- 👋 Hi, I’m vik
 - 👀 ALL DESIGN IS REDESIGN
 - 📫 @w3kasper TWITTER
 
